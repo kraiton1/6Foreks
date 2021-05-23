@@ -1,0 +1,2 @@
+# 6Foreks
+GitHub Pages
